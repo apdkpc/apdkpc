@@ -2,8 +2,8 @@
 * 
 - 
 - Hi, I’m @apdkpc
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
+- 👀 I’m interested in study 
+- 🌱 I’m currently learning about God
 - 💞️ I’m looking to collaborate on society
 - 📫 How to reach me  :EMAIL
 
